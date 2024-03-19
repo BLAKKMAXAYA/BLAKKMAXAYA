@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning to shape and sharpen my skills 
 - 💞️ I’m looking to collaborate with any good fellow that would be interested in helping a novice out
 - 📫 How to reach me +233245946904
-- 😄 Pronouns: awesome world
+- 😄 Pronouns: he/him/his
 - ⚡ Fun fact: keep it real, and the light will shine
 
 <!---
